@@ -1,1 +1,1 @@
-# Github.io-undangan.smkn2ambon
+# Github.io.undangan.smkn2ambon.io
